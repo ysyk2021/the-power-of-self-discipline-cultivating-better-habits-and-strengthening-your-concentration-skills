@@ -8,5 +8,4 @@ Throughout the book, you will learn practical tips and techniques for developing
 
 By the end of the book, you will have a better understanding of the power of self-discipline and how it can positively impact your life. With the right mindset and tools, you can cultivate better habits, increase your productivity, and achieve your goals with greater ease.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
