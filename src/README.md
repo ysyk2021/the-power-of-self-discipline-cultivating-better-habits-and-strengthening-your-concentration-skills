@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction:
-
 Self-discipline is a critical skill that can help individuals achieve their goals, develop healthy habits, and strengthen their concentration skills. Whether it is in personal or professional life, self-discipline is essential for success.
 
 In this book, we will explore the power of self-discipline and how it can be cultivated to improve our lives. We will discuss various aspects of self-discipline, including habit formation, concentration techniques, and motivation strategies.
