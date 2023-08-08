@@ -1,4 +1,4 @@
-Visualizing success, tracking progress, and celebrating achievements
+Visualizing Success, Tracking Progress, And Celebrating Achievements
 ==================================================================================================
 
 Motivation is essential for maintaining self-discipline and achieving long-term goals. In this chapter, we will explore strategies for staying motivated, including visualizing success, tracking progress, and celebrating achievements.

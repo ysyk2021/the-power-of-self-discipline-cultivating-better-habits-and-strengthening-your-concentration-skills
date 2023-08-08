@@ -1,4 +1,4 @@
-Strategies for sustaining self-discipline and avoiding burnout
+Strategies For Sustaining Self-Discipline And Avoiding Burnout
 ======================================================================================================
 
 Self-discipline is a powerful tool for achieving your goals and cultivating better habits. However, it can be challenging to sustain over time, especially if you're dealing with distractions, setbacks, or competing priorities. In this chapter, we will explore strategies for sustaining self-discipline and avoiding burnout.

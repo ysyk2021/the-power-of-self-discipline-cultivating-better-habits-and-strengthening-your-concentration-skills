@@ -1,4 +1,4 @@
-Building a culture of continuous improvement and growth
+Building A Culture Of Continuous Improvement And Growth
 ===============================================================================================
 
 Self-discipline is not a one-time achievement, but rather an ongoing process of growth and development. In this chapter, we will explore strategies for sustaining self-discipline over the long term, including building a culture of continuous improvement and growth.
