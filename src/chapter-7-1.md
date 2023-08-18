@@ -48,7 +48,7 @@ Accountability systems, such as finding a study buddy or joining a support group
 
 While it may seem counterintuitive, taking regular breaks can actually improve your concentration and discipline. Short breaks allow your mind to recharge, preventing burnout and increasing your overall productivity. Use these breaks wisely by engaging in activities that rejuvenate you and help maintain a healthy work-life balance.
 
-10. Practice Self-Compassion
+10\. Practice Self-Compassion
 ----------------------------
 
 Remember, self-discipline is a skill that requires practice and patience. Be kind and understanding towards yourself when faced with distractions or setbacks. Instead of dwelling on failures, focus on learning from them and adjusting your strategies accordingly. Treat yourself with compassion and celebrate small victories along the way.

@@ -35,7 +35,7 @@ Building a culture of growth and improvement can create an environment that supp
 
 5. Lead by example - Leaders who model self-discipline and embody the culture of growth and improvement can inspire others to do the same.
 
-The Bottom Line
+Conclusion
 ---------------
 
 Sustaining self-discipline requires ongoing effort and dedication. Strategies like setting realistic goals, celebrating small victories, maintaining accountability, managing stress, taking breaks, and staying focused on the big picture can help avoid burnout and maintain motivation. Building a culture of continuous improvement and growth can create an environment that supports and sustains self-discipline. Encouraging learning and development, embracing feedback, celebrating progress, creating a supportive environment, and leading by example are all steps that can contribute to a culture of growth and improvement. Remember that sustaining self-discipline is a process that requires ongoing effort, but the payoff of personal and professional growth and achievement is well worth it.
