@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Self-discipline is a critical component of personal development and success. It involves controlling impulses and emotions to pursue long-term goals, even when faced with difficulties or distractions. In this chapter, we will explore the importance of self-discipline in achieving success and common obstacles to cultivating better habits and improving concentration skills.
 

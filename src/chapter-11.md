@@ -1,5 +1,3 @@
-Chapter 11: Conclusion
-======================
 
 In this book, we have explored the power of self-discipline and how it can help us cultivate better habits and strengthen our concentration skills. We have discussed techniques for developing self-discipline, improving our focus, and achieving our goals.
 

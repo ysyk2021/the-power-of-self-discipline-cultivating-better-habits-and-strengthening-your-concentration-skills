@@ -1,5 +1,3 @@
-Practicing Mindfulness, Eliminating Distractions, and Taking Frequent Breaks
-=====================================================================================
 
 In this chapter, we will explore the importance of mindfulness, eliminating distractions, and taking frequent breaks in cultivating better habits and strengthening your concentration skills. These practices can significantly improve your self-discipline and help you achieve your goals more effectively.
 

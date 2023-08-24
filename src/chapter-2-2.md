@@ -1,5 +1,3 @@
-Identifying the Key Elements of a Successful Self-Disciplined Life
-=============================================================================
 
 In this chapter, we will explore the fundamental elements that contribute to leading a successful and self-disciplined life. By understanding and implementing these key elements, you will be able to cultivate better habits and strengthen your concentration skills. Let's dive in!
 

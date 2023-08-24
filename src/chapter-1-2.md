@@ -1,5 +1,3 @@
-Exploring Common Obstacles to Cultivating Better Habits and Improving Concentration Skills and How to Overcome Them
-============================================================================================================================
 
 In this chapter, we will delve into the common obstacles that hinder our ability to cultivate better habits and improve concentration skills. We will also discuss effective strategies to overcome these obstacles and pave the way for personal growth and development.
 

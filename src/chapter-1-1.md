@@ -1,5 +1,3 @@
-Understanding the Importance of Self-Discipline in Achieving Success
-=============================================================================
 
 Success is not an overnight phenomenon; it requires consistent effort and determination. While various factors contribute to achieving success, one crucial element stands out - self-discipline.
 

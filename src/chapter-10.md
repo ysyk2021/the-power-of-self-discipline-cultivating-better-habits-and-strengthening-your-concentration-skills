@@ -1,5 +1,3 @@
-Chapter 10: Sustaining Self-Discipline
-======================================
 
 Maintaining self-discipline over an extended period can be challenging. It requires ongoing dedication and effort to avoid burnout and stay motivated. In this chapter, we will discuss strategies for sustaining self-discipline and building a culture of growth and improvement.
 

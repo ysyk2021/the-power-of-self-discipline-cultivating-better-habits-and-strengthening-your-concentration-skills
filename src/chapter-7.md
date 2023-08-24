@@ -1,5 +1,3 @@
-Chapter 7: Avoiding Temptations and Distractions
-================================================
 
 In this chapter, we will explore strategies for avoiding temptations and distractions that impede progress. We will also discuss developing willpower, creating an optimal environment, and finding accountability partners to help you stay focused and avoid distractions.
 

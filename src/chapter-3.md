@@ -1,5 +1,3 @@
-Chapter 3: Building Better Habits
-=================================
 
 In this chapter, we will explore strategies for building better habits that support your goals. We will also discuss setting realistic goals, developing routines, and managing time to help you build and maintain better habits.
 

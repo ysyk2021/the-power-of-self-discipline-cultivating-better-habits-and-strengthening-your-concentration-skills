@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles
-===============================
 
 In this chapter, we will discuss strategies for overcoming obstacles to self-discipline and staying motivated. We will also explore how to manage setbacks and avoid burnout.
 

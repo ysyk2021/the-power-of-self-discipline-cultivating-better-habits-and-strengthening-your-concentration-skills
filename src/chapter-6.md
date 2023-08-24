@@ -1,5 +1,3 @@
-Chapter 6: Managing Time Effectively
-====================================
 
 Effective time management is essential for achieving success and maintaining self-discipline. In this chapter, we will explore techniques for managing time effectively and efficiently.
 

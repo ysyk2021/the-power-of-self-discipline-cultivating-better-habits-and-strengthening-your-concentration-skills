@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Procrastination
-=====================================
 
 In this chapter, we will explore techniques for overcoming procrastination and increasing productivity. We will also discuss identifying the root causes of procrastination, developing strategies to overcome it, and avoiding distractions.
 

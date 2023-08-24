@@ -1,5 +1,3 @@
-Chapter 2: Defining Self-Discipline
-===================================
 
 Self-discipline is a vital component of personal development and success. In this chapter, we will explore techniques for defining self-discipline and its benefits, as well as identifying the key elements of a successful self-disciplined life.
 

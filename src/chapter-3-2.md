@@ -1,5 +1,3 @@
-Setting Realistic Goals, Developing Routines, and Managing Time
-==========================================================================
 
 In this chapter, we will explore the importance of setting realistic goals, developing effective routines, and managing time efficiently. These three elements are essential for cultivating self-discipline, improving productivity, and achieving success in various aspects of life.
 

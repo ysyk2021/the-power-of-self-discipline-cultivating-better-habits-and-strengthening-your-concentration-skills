@@ -1,4 +1,3 @@
-# Chapter 8: Staying Motivated
 
 ## Techniques for staying motivated and committed to your goals
 

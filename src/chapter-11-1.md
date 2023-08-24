@@ -1,5 +1,3 @@
-Recap of Key Takeaways and Tips for Cultivating Better Habits and Strengthening Concentration Skills through the Power of Self-Discipline
-=================================================================================================================================================================
 
 In this book, we've explored the power of self-discipline and strategies for developing better habits and improving concentration skills. As we come to the end of this journey, let's recap some of the key takeaways and tips for cultivating self-discipline.
 

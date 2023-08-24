@@ -1,5 +1,3 @@
-Strategies for Overcoming Obstacles to Self-Discipline and Staying Motivated
-=====================================================================================
 
 In the journey of cultivating self-discipline and improving concentration skills, one inevitably encounters obstacles that can hinder progress and motivation. These challenges, while common, can be effectively managed with the right strategies. This chapter delves into various techniques and approaches to overcome these hurdles and maintain a high level of self-discipline.
 

@@ -1,5 +1,3 @@
-Strategies for Building Better Habits that Support Your Goals
-======================================================================
 
 In this chapter, we will explore effective strategies to help you build better habits that align with your goals. By implementing these strategies, you can cultivate self-discipline and enhance your concentration skills, ultimately leading to personal growth and success.
 
