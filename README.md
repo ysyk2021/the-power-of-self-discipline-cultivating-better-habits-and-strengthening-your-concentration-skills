@@ -1,3 +1,6 @@
+# The Power of Self-Discipline: Cultivating Better Habits and Strengthening Your Concentration Skills
+
+Book Link: [https://zhengpublishing.com/the-power-of-self-discipline-cultivating-better-habits-and-strengthening-your-concentration-skills/](https://zhengpublishing.com/the-power-of-self-discipline-cultivating-better-habits-and-strengthening-your-concentration-skills/)
 
 Self-discipline is a critical skill that can help individuals achieve their goals, develop healthy habits, and strengthen their concentration skills. Whether it is in personal or professional life, self-discipline is essential for success.
 
